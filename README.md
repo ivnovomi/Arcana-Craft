@@ -1,4 +1,4 @@
-\# 🪄 ARCANA
+# 🪄 ARCANA
 
 \### A Living World of Magic, Mystery \& Adventure
 
